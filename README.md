@@ -1,13 +1,11 @@
 飞兔云网址：https://xn--h5qy75o.com/index.html?register=SP5tiC89
+
 飞兔云介绍
 飞兔云机场，智能分流，飞兔云采用全中转模式，增强用户体验，优质CN2高速线路,网站/流媒体等服务加速。
 
 网站加速(Google/Twitter/Instgram/Github等)，流媒体解锁(Disney/Youtube/Netflix/ChatGPT等)。
 
 传输过程中使用最强的加密方式，保护用户数据隐私。4k视频秒开，满足日常办公娱乐等需求。
-
-飞兔云优惠码
-PS:5.10起至5.21 全场8折优惠（特惠套餐除外）
 
 优惠卷名称：缘定三生
 
